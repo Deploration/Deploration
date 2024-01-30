@@ -1,1 +1,1 @@
-I'm 16 and have no idea what I'm doing. I'm jsut trying to set up my portfolio in advance so that I can use it to become employed.
+I'm 16 and have no idea what I'm doing. I'm just trying to set up my portfolio in advance so that I can use it to become employed.
